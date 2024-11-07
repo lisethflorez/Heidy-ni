@@ -45,6 +45,12 @@
 ![Captura de pantalla 2024-11-07 154057](https://github.com/user-attachments/assets/a09a0f20-a8e6-40b6-88e0-756b2364657e)
 
 11
+![Captura de pantalla 2024-11-07 163201](https://github.com/user-attachments/assets/d172996f-47ec-44f0-9e3f-58d85b374631)
+![Captura de pantalla 2024-11-07 163211](https://github.com/user-attachments/assets/e5489212-9d0e-4230-bd60-58153717aca9)
+![Captura de pantalla 2024-11-07 163222](https://github.com/user-attachments/assets/08fdcf9d-a9ef-4efe-ab7b-6fa29bc8365e)
+
+12  
+
 
 
 
